@@ -21,7 +21,8 @@ I'm a passionate developer with a background in economics and marketing, current
 ## Get in Touch
 I'm always open to discussing new opportunities or collaborations. Feel free to reach out!
 - 📧 [Email Me](mailto:mamllechat11@gmail.com)
-- 💼 [LinkedIn](https://www.linkedin.com/in/deannak)
+- 💼 [LinkedIn](https://www.linkedin.com/in/imdeannak/)
+- 🌐 [Website](https://deanna.website)
 - 🐦 [Twitter](https://x.com/buildlogics)
 
 ---
