@@ -22,7 +22,7 @@ I'm a passionate developer with a background in economics and marketing, current
 I'm always open to discussing new opportunities or collaborations. Feel free to reach out!
 - 📧 [Email Me](mailto:mamllechat11@gmail.com)
 - 💼 [LinkedIn](https://www.linkedin.com/in/deannak)
-- 🐦 [Twitter](https://x.com/motoprotocol)
+- 🐦 [Twitter](https://x.com/buildlogics)
 
 ---
 
