@@ -23,7 +23,7 @@ I'm always open to discussing new opportunities or collaborations. Feel free to 
 - 📧 [Email Me](mailto:mamllechat11@gmail.com)
 - 💼 [LinkedIn](https://www.linkedin.com/in/imdeannak/)
 - 🌐 [Website](https://deanna.website)
-- 🐦 [Twitter](https://x.com/newtech_ai)
+- 🐦 [Twitter](https://x.com/devnomics)
 
 ---
 
